@@ -1,0 +1,38 @@
+Ingredients:
+
+4 filet mignon steaks, about 6 ounces each
+2 tablespoons olive oil
+Salt and freshly ground black pepper
+2 tablespoons English mustard (for brushing the steaks)
+8 slices of prosciutto
+1 pound mixed mushrooms, finely chopped
+1 large shallot, finely diced
+2 cloves garlic, minced
+2 tablespoons fresh thyme, chopped
+1/4 cup dry white wine (optional)
+1 sheet of puff pastry, thawed if frozen
+1 egg, lightly beaten (for egg wash)
+Flour, for dusting
+Instructions:
+
+Preheat your oven to 400°F (200°C).
+
+Heat a large skillet over high heat. Rub the filet mignon steaks with olive oil, and season them generously with salt and black pepper.
+
+When the skillet is very hot, add the steaks and sear them for 1-2 minutes on each side until they're well-browned. Remove the steaks from the skillet and set them aside to cool. Brush the cooled steaks with English mustard.
+
+Reduce the heat to medium, and in the same skillet, add the chopped mushrooms, shallots, garlic, and thyme, adding additional oil if necessary. Sauté for about 10 minutes until most of the moisture has evaporated. If you're using wine, add it now and cook for another 2-3 minutes until it's reduced. Let the mushroom duxelles cool.
+
+On a flour-dusted surface, roll out the puff pastry sheet to a size that will allow you to wrap the steaks completely. Cut the sheet into quarters.
+
+Lay out two slices of prosciutto on each piece of puff pastry, ensuring they're large enough to wrap around each steak. Spread a thin layer of the cooled mushroom mixture over the prosciutto.
+
+Place a steak in the middle of each mushroom-covered prosciutto. Fold the prosciutto over the steak, then wrap the puff pastry around it, sealing the edges with a bit of beaten egg.
+
+Place the wrapped steaks seam side down on a baking sheet lined with parchment paper. Brush the tops with more beaten egg.
+
+Bake in the preheated oven for 25-30 minutes or until the pastry is golden brown and flaky.
+
+Let the Wellington Steaks rest for 10 minutes before serving. This is crucial for keeping the juices in the steak.
+
+Serve with your favorite sides, such as roasted vegetables or potatoes, and enjoy!
